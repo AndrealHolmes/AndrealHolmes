@@ -18,12 +18,11 @@ I’m driven by the challenge of bringing people, data, and design together to s
 - Strategic planning   
 - Program evaluation and impact tracking  
 
-### 📄 Featured Articles & Research
+📄 **Featured Articles & Research**
 
 - [Travel Behavior in E-commerce: Shopping, Purchasing, and Receiving, National Center for Sustainable Transportation](https://ncst.ucdavis.edu/research-product/travel-behavior-e-commerce-shopping-purchasing-and-receiving)  
 - [Smart Cities and Transportation: Governance and Institutional Frameworks](https://www.researchgate.net/publication/387311142_Smart_Cities_and_Transportation_Governance_and_Institutional_Frameworks) 
-- [Montreal Gazette Opinion: Municipalities should make cyber safety a new year’s resolution
-  (https://www.montrealgazette.com/opinion/article382369.html)
+- [Montreal Gazette Opinion: Municipalities should make cyber safety a new year’s resolution](https://www.montrealgazette.com/opinion/article382369.html)
 
 📍 Based in Los Angeles | Open to travel
 
