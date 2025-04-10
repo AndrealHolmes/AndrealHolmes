@@ -13,10 +13,10 @@ I’m driven by the challenge of bringing people, data, and design together to s
 📌 **Core Skills**:
 - Land use and real estate development
 - Public-sector partnerships & stakeholder engagement  
-- Market entry & community strategy  
+- Community engagement strategy  
 - Cross-functional team leadership  
 - Strategic planning   
-- Program evaluation & impact tracking  
+- Program evaluation and impact tracking  
 
 📍 Based in Los Angeles | Open to travel
 
