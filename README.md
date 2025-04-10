@@ -13,8 +13,8 @@ I’m driven by the challenge of bringing people, data, and design together to s
 📌 **Core Skills**:
 - Land use and real estate development
 - Public-sector partnerships & stakeholder engagement  
-- Community engagement strategy  
-- Cross-functional team leadership  
+- Community engagement strategy
+- Team leadership  
 - Strategic planning   
 - Program evaluation and impact tracking  
 
